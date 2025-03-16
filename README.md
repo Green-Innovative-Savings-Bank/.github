@@ -1,5 +1,3 @@
-#Green-Innovative-Savings-Bank
-
 Green Innovative Savings Bank is a forward-thinking financial institution dedicated to providing sustainable and responsible savings solutions. Founded with a clear purpose in Mzimba, Malawi, our mission is to encourage individuals and organizations to save in ways that not only benefit them but also support environmental sustainability. As part of our commitment to mitigating climate change, we offer innovative savings accounts that help reduce the environmental impact of traditional banking.
 With an unwavering focus on green practices and environmental responsibility, Green Innovative Savings Bank operates exclusively online, ensuring that all of our services are digital, paperless, and eco-friendly. By embracing modern financial technology and supporting green initiatives, we provide our customers with a path toward a sustainable future while helping them grow their savings for tomorrow.
 ________________________________________
